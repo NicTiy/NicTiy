@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NicTiy
+- 👀 I’m interested in DATA ANALYTICS
+- 🌱 I’m currently SQL 
+- 📫 How to reach me ... www.linkedin.com/in/nicoletpitts
